@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @juuzou-kun
 - 👀 I’m interested in ...knifes
 - 🌱 I’m currently learning i.a
-- 💞️ I’m looking to collaborate on any kind of project abou tecnology
+- 💞️ I’m looking to collaborate on any kind of project about tecnology
 - 📫 How to reach me joeyandrey16@gmail.com
 - 
 
